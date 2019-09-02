@@ -1,0 +1,2 @@
+# pertemuanpertama
+belajar klinik koding
